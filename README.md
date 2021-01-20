@@ -9,6 +9,6 @@
 - 👯 I’m looking to collaborate on some web and mobile applications to get my hands dirty with coding experience.
 - 🤔 I’m looking for help with ...
 - 💬 I love teaching and be in touch with amazing people.
-- 📫 Reach me: at [a link](https://www.instagram.com/harpreet.kaur_dhaliwal/)
+- 📫 Reach me: at [instagram](https://www.instagram.com/harpreet.kaur_dhaliwal/)
 - ⚡ Fun fact:I believe in gaining and sharing ideas and knowlegde from/with incredible people. 
 
